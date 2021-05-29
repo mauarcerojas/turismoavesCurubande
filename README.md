@@ -8,6 +8,6 @@ La comunidad de [Curubandé](http://www.sinac.go.cr/ES/atc/cu/Paginas/default.as
 
 Por otro lado, Curubandé cuenta con diversas facilidades, (alojamiento, servcio de comidas, recreación), tal y como se muestra en esta [ruta.](https://www.youtube.com/watch?v=IGIR9Zm2P7k)
 
-Además, cuenta con una gran variedad de aves, tal y como se muestra en el (**punto de observación 1**)[https://www.canva.com/design/DAEf30k9J-Y/7SJVdiGQ8ujKnlu9pYBUGQ/view?utm_content=DAEf30k9J-Y&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton#1]
+Además, cuenta con una gran variedad de aves, tal y como se muestra en el [**punto de observación 1**](https://www.canva.com/design/DAEf30k9J-Y/7SJVdiGQ8ujKnlu9pYBUGQ/view?utm_content=DAEf30k9J-Y&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton#1)
 
 
